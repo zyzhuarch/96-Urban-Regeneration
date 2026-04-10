@@ -1,2 +1,3 @@
 # 96-Urban-Regeneration
 用九六都市更新 - 網站已搬家...
+🔗 **新網址!:** [點此前往 96 Urban Regeneration](https://zyzhuarch.github.io/96-Urban-Regeneration-Ltd./)
